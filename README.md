@@ -1,6 +1,6 @@
 <div align="center">
 
- # Alexandra Magalhaes
+ # Ludovina Magalhaes
 
 # Olá!! Sou uma pessoa curiosa e que gosta de aprender 👋⭐
 
